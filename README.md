@@ -6,7 +6,6 @@
 - 💻 I catch on quickly and work hard to continuously learn new skills.
 - 🌱 I’m currently learning coding and programming.
 - 💞️ I’m looking to collaborate on an organization, which will enable me to utilize my skills and abilities to help me evolve in both professional and personal life.
-- 📫 How to reach me: pedro.serdoura@hotmail.com
 - 😄 Pronouns: He/him.
 - ⚡ Fun fact: I feel more confortable working with adults than with kids.
 
