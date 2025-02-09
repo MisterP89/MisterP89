@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Pedro!
 - 🎓 I am a Primary School Teacher.
-- 👀 I’m interested in shape up my career with a well challenging and rewarding position in an esteemed organization.
+- 👀 I’m interested in shape up a new career with a well challenging and rewarding position in an esteemed organization.
 - ⏰ I am a hard worker who is skilled in problem-solving and time management.
 - 🙋🏻‍♂️ I take initiative and get things done on my own as well as with others.
 - 💻 I catch on quickly and work hard to continuously learn new skills.
